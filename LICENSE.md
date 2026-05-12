@@ -1,4 +1,4 @@
-#  
+#  Experience all star tower defense like never before with all star tower defense Script hidden, the #1 Script. Includes speed and auto-upgrade for
 
 
 
